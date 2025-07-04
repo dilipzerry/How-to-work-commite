@@ -1,1 +1,1 @@
-# How-to-work-commite
+# How-to-work-committe
